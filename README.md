@@ -1,1 +1,1 @@
-i barely get in this game hi
+i barely get on this game 
